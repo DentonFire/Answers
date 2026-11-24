@@ -39,5 +39,5 @@ Short and direct. Answer the question in the first line, including when the answ
 
 ## Contact
 
-Recruiting: firerecruiter@cityofdenton.com
+Community Risk Reduction Officer (recruiting, public education and events, Fire Explorers, Fire Camp, Citizens Fire Academy, Clowns on Fire): firerecruiter@cityofdenton.com
 Fire Administration: 940-349-8840
